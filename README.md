@@ -1,0 +1,2 @@
+- hi im a person, call me augustus or something like that but not augugsus
+- my discord is Augustus_Argento#1324 not telling email bc its just my name, hopefully it doesnt show up in account info or something, i wouldnt know i made this account just to request something
